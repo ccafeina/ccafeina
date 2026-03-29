@@ -13,7 +13,7 @@
 ```
 
 ```diff
-@@ BYI -> im rlly awkward, im not that fluent in english and if were too close i may seem rude (all jokes believe me) so tell me to stop if it makes u uncomfy @@
+@@ BYI -> im rlly awkward, im not that fluent in english - and if were already close i may seem rude (all jokes believe me) so tell me to stop if it makes u uncomfy @@
 ```
 
 
