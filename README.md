@@ -1,5 +1,12 @@
+![Profile views](https://komarev.com/ghpvc/?username=ccafeina)
 
-![200](https://github.com/user-attachments/assets/9ccc4c4b-a270-4ac9-9eb1-0effd759fd94)  
+`biancha . 15 . any pronouns . sapphic -- int n c+h freely, bmf plspls im cool i think`
 
-`biancha . 15 . any`
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
+**INTERESTS** -> crkob, jjk, hxh, banana fish, blue period, south park, undertale au's, etc. (i forgot)
+
+**DNI** -> [basic dni criteria](https://basic-dni.crd.co/)
+
+
+wip btwwww,,,
