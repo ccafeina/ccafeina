@@ -1,6 +1,6 @@
 ![Profile views](https://komarev.com/ghpvc/?username=ccafeina&label=curses&color=824f9c)
 
-`biancha . 15 . any pronouns . sapphic -- int n c+h freely, bmf plspls im cool i think`
+`biancha . ALMOST 15 :) . any pronouns . sapphic -- int n c+h freely, bmf plspls im cool i think`
 
 ⋆｡‧˚ʚ ୨ৎ ɞ˚‧｡⋆
 
