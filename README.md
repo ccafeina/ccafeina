@@ -5,7 +5,7 @@
 ⋆｡‧˚ʚ ୨ৎ ɞ˚‧｡⋆
 
 ```diff
-$$\color{red}INTERESTS -> crkob, jjk, hxh, banana fish, blue period, south park, undertale au's, etc - (i forgot)$$
+$$ INTERESTS -> crkob, jjk, hxh, banana fish, blue period, south park, undertale au's, etc - (i forgot) $$
 ``` 
 
 ```diff
