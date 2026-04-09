@@ -1,4 +1,4 @@
-![Profile views](https://komarev.com/ghpvc/?username=ccafeina&label=curses&color=824f9c)
+![Profile views](https://komarev.com/ghpvc/?username=ccafeina&label=curses&color=a31f1f)
 
 `biancha . ALMOST 15 :) . any pronouns . sapphic -- int n c+h freely, bmf plspls im cool i think`
 
